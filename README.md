@@ -1,1 +1,1 @@
-# imaxt_alert_privacy_policy.github.io
+# impaxt_alert_privacy_policy.github.io
